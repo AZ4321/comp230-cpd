@@ -71,11 +71,7 @@ The Ethics essay is complete because I had spent extra time over the weekend imp
 feedback from the upcoming Peer Review for the essay itself. I feel like I am prioritizing well for the tasks that are
 coming up but I still feel like I am falling behind on the comp220 module as I have failed to attend the earlier sessions
 and as such being on-track with that module is out of the question as any session that I attend from this point,
-doesn't relate to me because I keep getting stuck with issues that the module has already gone through or passed. Also
-seeing how asking for help ceases to work as I see Brian being visibly dissapointed at the lack of progress and his
-desire to help also fleeting, understandable. Main issue here is the attendance and prioritizing difficult tasks above
-simpler ones but I'd rather focus on putting effort into something that I feel is achievable for me insead of a task
-that seems impossible for me.
+doesn't relate to me because I keep getting stuck with issues that the module has already gone through or passed. Main issue here is the attendance and prioritizing difficult tasks above simpler ones but I'd rather focus on putting effort into something that I feel is achievable for me insead of a task that seems impossible for me. However, I should remember that not trying is even worse.
 
 ## Week Nine/Ten
 
